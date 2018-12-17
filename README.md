@@ -26,6 +26,7 @@ Keeping track of zouk moves
 - Bruno/Fae: rubberband into arms & walk http://youtu.be/OuwQNoIE_jo?t=87s
 - Bruno/Fae: tilted turn into normal turns http://youtu.be/OuwQNoIE_jo?t=126s
 - Bruno/Fae: fancy move/yoyo to tilted turn into open styling into tilted turn into cuddle http://youtu.be/OuwQNoIE_jo?t=132s
+- Charles Espinoza: fancy move/outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
 
 **Moves we tried & failed (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
