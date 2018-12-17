@@ -1,7 +1,7 @@
 # zoukmoves
 Keeping track of zouk moves
 
-New moves for future practices:
+**New moves for future practices:**
 - Brenda/Lucas: arms with exit variation http://youtu.be/DMDmlhb7Bz0?t=34s 
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
@@ -12,8 +12,7 @@ New moves for future practices:
 - William/Paloma: shadow arm turn into head movement https://youtu.be/vp6JafuCDHk?t=58s
 - William/Paloma: head movement exit variation of yoyo into arms https://youtu.be/vp6JafuCDHk?t=180s
 
-Move checklist:
-
+**Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
 - Brenda/Lucas: backwards chambre http://youtu.be/DMDmlhb7Bz0?t=51s
 - Paulo/Luisa: arms around neck into cuddle position http://youtu.be/meXPCMi-p3g?t=25s
@@ -28,5 +27,5 @@ Move checklist:
 - Bruno/Fae: tilted turn into normal turns http://youtu.be/OuwQNoIE_jo?t=126s
 - Bruno/Fae: fancy move/yoyo to tilted turn into open styling into tilted turn into cuddle http://youtu.be/OuwQNoIE_jo?t=132s
 
-Moves we tried & failed (lol):
+**Moves we tried & failed (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
