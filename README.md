@@ -14,13 +14,13 @@ Keeping track of zouk moves
 
 **Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
-- Brenda/Lucas: backwards chambre http://youtu.be/DMDmlhb7Bz0?t=51s
+- Brenda/Lucas: backwards cambre http://youtu.be/DMDmlhb7Bz0?t=51s
 - Paulo/Luisa: arms around neck into cuddle position http://youtu.be/meXPCMi-p3g?t=25s
 - Ivoveira: shadow walk, pivot spin into arms http://youtu.be/qVMnU0vV52I?t=395s
 - Kamacho/Oksana: rubber hand behind the head to double spin http://youtu.be/sTIngSWDk80?t=35s
 - Kamacho/Oksana: double hand boomerang http://youtu.be/sTIngSWDk80?t=51s
 - William/Paloma: Cross lead/Change-of-direction in open frame https://youtu.be/vp6JafuCDHk?t=25s
-- William/Paloma: fancy move into roast chickens into cuddle chambre https://youtu.be/vp6JafuCDHk?t=157s
+- William/Paloma: fancy move into roast chickens into cuddle cambre https://youtu.be/vp6JafuCDHk?t=157s
 - Bruno/Fae: chest rotations with swivel http://youtu.be/OuwQNoIE_jo?t=60s
 - Bruno/Fae: side lunge into pivots into "counterbalance" http://youtu.be/OuwQNoIE_jo?t=72s
 - Bruno/Fae: rubberband into arms & walk http://youtu.be/OuwQNoIE_jo?t=87s
