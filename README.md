@@ -23,7 +23,8 @@ Keeping track of zouk moves
 - William/Paloma: fancy move into roast chickens into cuddle cambre https://youtu.be/vp6JafuCDHk?t=157s
 - Bruno/Fae: chest rotations with swivel http://youtu.be/OuwQNoIE_jo?t=60s
 - Bruno/Fae: side lunge into pivots into "counterbalance" http://youtu.be/OuwQNoIE_jo?t=72s
-- Bruno/Fae: rubberband into arms & walk http://youtu.be/OuwQNoIE_jo?t=87s cambre ending variation: https://www.facebook.com/elevationzouk/videos/2198971043456163/?t=96
+- Bruno/Fae: rubberband into arms & walk http://youtu.be/OuwQNoIE_jo?t=87s
+- William/Paloma: exit variation of the above https://youtu.be/awUrouqfSjw?t=95
 - Bruno/Fae: fancy move/yoyo to tilted turn into open styling into tilted turn into cuddle http://youtu.be/OuwQNoIE_jo?t=132s
 - William/Paloma: exit variation of the above https://youtu.be/vp6JafuCDHk?t=180s
 - Charles Espinoza: fancy move 1?
