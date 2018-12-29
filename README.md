@@ -10,7 +10,7 @@ Keeping track of zouk moves
 - William/Paloma: limbo move to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 - William/Paloma: forward to backwards chambre to music https://youtu.be/vp6JafuCDHk?t=47s
 - William/Paloma: shadow arm turn into head movement https://youtu.be/vp6JafuCDHk?t=58s
-- William/Paloma: head movement exit variation of yoyo into arms https://youtu.be/vp6JafuCDHk?t=180s
+
 
 **Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
@@ -23,10 +23,11 @@ Keeping track of zouk moves
 - William/Paloma: fancy move into roast chickens into cuddle cambre https://youtu.be/vp6JafuCDHk?t=157s
 - Bruno/Fae: chest rotations with swivel http://youtu.be/OuwQNoIE_jo?t=60s
 - Bruno/Fae: side lunge into pivots into "counterbalance" http://youtu.be/OuwQNoIE_jo?t=72s
-- Bruno/Fae: rubberband into arms & walk http://youtu.be/OuwQNoIE_jo?t=87s
-- Bruno/Fae: tilted turn into normal turns http://youtu.be/OuwQNoIE_jo?t=126s
+- Bruno/Fae: rubberband into arms & walk http://youtu.be/OuwQNoIE_jo?t=87s cambre ending variation: https://www.facebook.com/elevationzouk/videos/2198971043456163/?t=96
 - Bruno/Fae: fancy move/yoyo to tilted turn into open styling into tilted turn into cuddle http://youtu.be/OuwQNoIE_jo?t=132s
+- William/Paloma: exit variation of the above https://youtu.be/vp6JafuCDHk?t=180s
 - Charles Espinoza: fancy move/outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
 
-**Moves we tried & failed (lol):**
+**Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
+- Bruno/Fae: tilted turn into normal turns http://youtu.be/OuwQNoIE_jo?t=126s
