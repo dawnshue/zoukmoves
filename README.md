@@ -2,7 +2,7 @@
 Keeping track of zouk moves
 
 **New moves for future practices:**
-- Brenda/Lucas: arms with exit variation http://youtu.be/DMDmlhb7Bz0?t=34s 
+- Brenda/Lucas: arms with exit variation http://youtu.be/DMDmlhb7Bz0?t=86s 
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Evelyn/Xandy: cross hand hold into backward chambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=273s
