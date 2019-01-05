@@ -2,7 +2,6 @@
 Keeping track of zouk moves
 
 **New moves for future practices:** 
-- Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=102
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Evelyn/Xandy: cross hand hold into backward chambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=273s
 - Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
@@ -37,6 +36,7 @@ Keeping track of zouk moves
 - Alanna & Rui: both ppl spiral turn into cambre
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Tilted turn with arms
+- Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=96
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
