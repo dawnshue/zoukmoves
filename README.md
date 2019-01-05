@@ -3,7 +3,7 @@ Keeping track of zouk moves
 
 **New moves for future practices:** 
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
-- Evelyn/Xandy: cross hand hold into backward chambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=273s
+- Evelyn/Xandy: cross hand hold, head movement into backward cambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=267s
 - Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
 - William/Paloma: limbo move to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 - William/Paloma: forward to backwards chambre to music https://youtu.be/vp6JafuCDHk?t=47s
