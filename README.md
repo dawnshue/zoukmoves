@@ -14,6 +14,8 @@ Keeping track of zouk moves
 - Lucas/Carol: counterbalance interrupt into chicote https://youtu.be/uZAknlqRPCE?t=134
 - Lucas/Carol: fast & funky arms https://youtu.be/uZAknlqRPCE?t=216
 - Dadinho/Anna: cambre exit with level changing https://youtu.be/tjC0NvRn968?t=120
+- Freddy/Andressa: side dip example https://youtu.be/xc9OnB1mZAA?t=28
+- Freddy/Andressa: funky arms into head movement https://youtu.be/xc9OnB1mZAA?t=59
 
 **Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
@@ -41,3 +43,4 @@ Keeping track of zouk moves
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
 - Bruno/Fae: tilted turn into normal turns http://youtu.be/OuwQNoIE_jo?t=126s
+- Paulo/Luisa: arm around neck cuddle position swing https://youtu.be/meXPCMi-p3g?t=89
