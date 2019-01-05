@@ -4,7 +4,6 @@ Keeping track of zouk moves
 **New moves for future practices:**
 - Brenda/Lucas: arms with exit variation http://youtu.be/DMDmlhb7Bz0?t=86s 
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
-- Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Evelyn/Xandy: cross hand hold into backward chambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=273s
 - Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
 - William/Paloma: limbo move to rubberband https://youtu.be/vp6JafuCDHk?t=37s
@@ -29,6 +28,9 @@ Keeping track of zouk moves
 - William/Paloma: exit variation of the above https://youtu.be/vp6JafuCDHk?t=180s
 - Charles Espinoza: fancy move 1?
 - Charles Espinoza: fancy move/outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
+- Alanna & Rui: both ppl spiral turn into cambre
+- Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
+- Tilted turn with arms
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
