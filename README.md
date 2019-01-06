@@ -33,9 +33,9 @@ Keeping track of zouk moves
 - William/Paloma: exit variation of the above https://youtu.be/awUrouqfSjw?t=95
 - Bruno/Fae: fancy move/yoyo to tilted turn into open styling into tilted turn into cuddle http://youtu.be/OuwQNoIE_jo?t=132s
 - William/Paloma: exit variation of the above https://youtu.be/vp6JafuCDHk?t=180s
-- Charles Espinoza: fancy move 1?
-- Charles Espinoza: fancy move/outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
-- Alanna & Rui: both ppl spiral turn into cambre
+- Charles Espinoza: fancy arm move https://www.youtube.com/watch?v=lDTvPXdr7rE
+- Charles Espinoza: outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
+- Alanna & Rui: both ppl spiral turn into cambre https://www.youtube.com/watch?v=GN1H1-IHGzs
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Tilted turn with arms
 - Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=96
