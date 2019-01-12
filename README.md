@@ -2,7 +2,6 @@
 Keeping track of zouk moves
 
 **New moves for future practices:** 
-- Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Lucas/Carol: side chicote https://youtu.be/uZAknlqRPCE?t=32
 - Lucas/Carol: roast chicken with arms https://youtu.be/uZAknlqRPCE?t=63
@@ -37,6 +36,7 @@ Keeping track of zouk moves
 - William/Paloma: back cambre exit to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 - William/Paloma: forward to backwards cambre to music https://youtu.be/vp6JafuCDHk?t=47s
 - Freddy/Andressa: side dip example https://youtu.be/xc9OnB1mZAA?t=28
+- ? Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
