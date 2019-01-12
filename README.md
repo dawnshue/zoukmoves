@@ -2,9 +2,8 @@
 Keeping track of zouk moves
 
 **New moves for future practices:** 
-- Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
-- William/Paloma: limbo move to rubberband https://youtu.be/vp6JafuCDHk?t=37s
+- Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - William/Paloma: forward to backwards chambre to music https://youtu.be/vp6JafuCDHk?t=47s
 - William/Paloma: shadow arm turn into head movement https://youtu.be/vp6JafuCDHk?t=58s
 - Lucas/Carol: roast chicken in funky position https://youtu.be/uZAknlqRPCE?t=32
@@ -38,6 +37,7 @@ Keeping track of zouk moves
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Tilted turn with arms
 - Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=96
+- William/Paloma: limbo move to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
