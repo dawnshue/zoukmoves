@@ -36,7 +36,7 @@ Keeping track of zouk moves
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Tilted turn with arms
 - Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=96
-- William/Paloma: limbo move to rubberband https://youtu.be/vp6JafuCDHk?t=37s
+- William/Paloma: back cambre exit to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 - William/Paloma: forward to backwards cambre to music https://youtu.be/vp6JafuCDHk?t=47s
 
 **Moves we tried & nah (lol):**
