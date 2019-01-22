@@ -2,6 +2,7 @@
 Keeping track of zouk moves
 
 **New moves for future practices:** 
+- Carlos/Fernanda: drop exit variation https://youtu.be/RZmWeqbwrJg?t=79
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Lucas/Carol: side chicote https://youtu.be/uZAknlqRPCE?t=32
 - Lucas/Carol: roast chicken with arms https://youtu.be/uZAknlqRPCE?t=63
