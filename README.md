@@ -41,6 +41,8 @@ Keeping track of zouk moves
 - Freddy/Andressa: side dip example https://youtu.be/xc9OnB1mZAA?t=28
 - Evelyn/Xandy: spiral with only arm/elbow connection http://youtu.be/ITRCYkFMqfk?t=289s
 - Ry'el & Jessica: tilted turn behind the back & peekaboo https://www.youtube.com/watch?v=96kAN20Exps
+- Marc Brewer: viradhina into basic step with change of direction
+- Marc Brewer: grapevine
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
