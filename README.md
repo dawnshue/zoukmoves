@@ -2,7 +2,6 @@
 Keeping track of zouk moves
 
 **New moves for future practices:** 
-- Carlos/Fermanda: walk into front stance back cambre https://youtu.be/RZmWeqbwrJg?t=120
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Lucas/Carol: side chicote https://youtu.be/uZAknlqRPCE?t=32
 - Lucas/Carol: roast chicken with arms https://youtu.be/uZAknlqRPCE?t=63
@@ -44,6 +43,7 @@ Keeping track of zouk moves
 - Marc Brewer: grapevine
 - Leonardo Cordeiro/Van Oliveira: left turn into lead pretzel https://youtu.be/1JSgi054JBk?t=82
 - Carlos/Fernanda: side wave with change of levels & spinning out exit variation https://youtu.be/RZmWeqbwrJg?t=76
+- Carlos/Fermanda: walk into front stance back cambre https://youtu.be/RZmWeqbwrJg?t=120
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
