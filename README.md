@@ -43,6 +43,7 @@ Keeping track of zouk moves
 - Ry'el & Jessica: tilted turn behind the back & peekaboo https://www.youtube.com/watch?v=96kAN20Exps
 - Marc Brewer: viradhina into basic step with change of direction
 - Marc Brewer: grapevine
+- Leonardo Cordeiro/Van Oliveira: left turn into lead pretzel https://youtu.be/1JSgi054JBk?t=82
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
