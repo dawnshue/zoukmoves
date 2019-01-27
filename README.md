@@ -41,7 +41,8 @@ Keeping track of zouk moves
 - Marc Brewer: viradhina into basic step with change of direction
 - Marc Brewer: grapevine
 - Leonardo Cordeiro/Van Oliveira: left turn into lead pretzel https://youtu.be/1JSgi054JBk?t=82
-- Carlos/Fernanda: side wave with change of levels & spinning out exit variation https://youtu.be/RZmWeqbwrJg?t=76
+- Carlos/Fernanda: side wave with change of levels https://youtu.be/RZmWeqbwrJg?t=76
+- Carlos/Fernanda: spinning out exit variation https://youtu.be/RZmWeqbwrJg?t=80
 - Carlos/Fermanda: walk into front stance back cambre https://youtu.be/RZmWeqbwrJg?t=120
 - Dadinho/Anna: cambre exit with level changing https://youtu.be/tjC0NvRn968?t=117
 
