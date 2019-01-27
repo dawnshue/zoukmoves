@@ -8,7 +8,6 @@ Keeping track of zouk moves
 - Lucas/Carol: backwards cambre with rocking https://youtu.be/uZAknlqRPCE?t=110
 - Lucas/Carol: counterbalance interrupt into chicote https://youtu.be/uZAknlqRPCE?t=134
 - Lucas/Carol: fast & funky arms https://youtu.be/uZAknlqRPCE?t=216
-- Dadinho/Anna: cambre exit with level changing https://youtu.be/tjC0NvRn968?t=117
 - Freddy/Andressa: funky arms into head movement https://youtu.be/xc9OnB1mZAA?t=59
 - Arm pretzels: https://www.youtube.com/watch?v=1JSgi054JBk
 
@@ -44,6 +43,7 @@ Keeping track of zouk moves
 - Leonardo Cordeiro/Van Oliveira: left turn into lead pretzel https://youtu.be/1JSgi054JBk?t=82
 - Carlos/Fernanda: side wave with change of levels & spinning out exit variation https://youtu.be/RZmWeqbwrJg?t=76
 - Carlos/Fermanda: walk into front stance back cambre https://youtu.be/RZmWeqbwrJg?t=120
+- Dadinho/Anna: cambre exit with level changing https://youtu.be/tjC0NvRn968?t=117
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
