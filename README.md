@@ -44,6 +44,7 @@ Keeping track of zouk moves
 - Marc Brewer: viradhina into basic step with change of direction
 - Marc Brewer: grapevine
 - Leonardo Cordeiro/Van Oliveira: left turn into lead pretzel https://youtu.be/1JSgi054JBk?t=82
+- Carlos/Fernanda: side wave with change of levels & spinning out exit variation https://youtu.be/RZmWeqbwrJg?t=76
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
