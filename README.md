@@ -1,5 +1,5 @@
 # zoukmoves
-Keeping track of zouk moves
+Keeping track of zouk moves  
 Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK61TH7vpna3VoGGHD
 
 **New moves for future practices:** 
