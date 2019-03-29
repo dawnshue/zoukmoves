@@ -49,6 +49,7 @@ Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK
 - Carlos/Fernanda: spinning out exit variation https://youtu.be/RZmWeqbwrJg?t=80
 - Carlos/Fermanda: walk into front stance back cambre https://youtu.be/RZmWeqbwrJg?t=120
 - Dadinho/Anna: cambre exit with level changing https://youtu.be/tjC0NvRn968?t=117
+- Freddy/Andressa: left side counterbalance
 - Side chicote into roast chicken into same side chicote
 
 **Moves we tried & nah (lol):**
