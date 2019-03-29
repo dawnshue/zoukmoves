@@ -36,7 +36,6 @@ Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK
 - Charles Espinoza: outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
 - Alanna & Rui: both ppl spiral turn into cambre https://www.youtube.com/watch?v=GN1H1-IHGzs
 - Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
-- Tilted turn with arms
 - Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=96
 - William/Paloma: back cambre exit to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 - William/Paloma: forward to backwards cambre to music https://youtu.be/vp6JafuCDHk?t=47s
