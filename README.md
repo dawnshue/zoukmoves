@@ -12,6 +12,8 @@ Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK
 - Freddy/Andressa: funky arms into head movement https://youtu.be/xc9OnB1mZAA?t=59
 - Arm pretzels: https://www.youtube.com/watch?v=1JSgi054JBk
 - Alex/Mathilde: side chicote > roast chicken > cambre https://youtu.be/dKopE_lMXWU?t=147
+- Lucas Oliveira: fancy ass footwork https://www.facebook.com/uaizouk/videos/2273092869585894/?v=2273092869585894
+- 
 
 **Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
