@@ -1,6 +1,5 @@
 # zoukmoves
-Keeping track of zouk moves  
-Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK61TH7vpna3VoGGHD
+Keeping track of zouk moves
 
 **New moves for future practices:** 
 - Bruno/Fae: rubberband into arms & walk with COUNTERBALANCE http://youtu.be/OuwQNoIE_jo?t=87s
