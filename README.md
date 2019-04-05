@@ -10,9 +10,7 @@ Keeping track of zouk moves
 - Lucas/Carol: fast & funky arms https://youtu.be/uZAknlqRPCE?t=216
 - Freddy/Andressa: funky arms into head movement https://youtu.be/xc9OnB1mZAA?t=59
 - Arm pretzels: https://www.youtube.com/watch?v=1JSgi054JBk
-- Alex/Mathilde: side chicote > roast chicken > cambre https://youtu.be/dKopE_lMXWU?t=147
 - Lucas Oliveira: fancy ass footwork https://www.facebook.com/uaizouk/videos/2273092869585894/?v=2273092869585894
-- 
 
 **Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
@@ -50,6 +48,7 @@ Keeping track of zouk moves
 - Bruno/Raiza: walks, chest isolations
 - Side chicote into roast chicken into same side chicote
 - Aline: lamba-style roast chicken into side chicote into sitting with isolations https://www.youtube.com/watch?v=Y74FuIxGkz0&t=48
+- Alex/Mathilde: side chicote > roast chicken > cambre https://youtu.be/dKopE_lMXWU?t=147
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
