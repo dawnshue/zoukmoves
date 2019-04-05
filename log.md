@@ -17,6 +17,6 @@ Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK
 - Roast chicken: don't necessarily need to have your head follow your hand (leave it behind, more lamba style)
 
 **Gui:**
-- Musicality
+- Musicality/Following in lyrical music
 - Connection
 - Head Movement
