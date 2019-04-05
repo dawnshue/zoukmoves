@@ -3,7 +3,6 @@ Keeping track of zouk moves
 
 **New moves for future practices:** 
 - Bruno/Fae: rubberband into arms & walk with COUNTERBALANCE http://youtu.be/OuwQNoIE_jo?t=87s
-- Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 - Lucas/Carol: side chicote https://youtu.be/uZAknlqRPCE?t=32
 - Lucas/Carol: roast chicken with arms https://youtu.be/uZAknlqRPCE?t=63
 - Lucas/Carol: backwards cambre with rocking https://youtu.be/uZAknlqRPCE?t=110
@@ -58,6 +57,7 @@ Keeping track of zouk moves
 - Paulo/Luisa: arm around neck cuddle position swing https://youtu.be/meXPCMi-p3g?t=89
 - Evelyn/Xandy: cross hand hold, head movement into backward cambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=267s
 - William/Paloma: back cambre exit to rubberband https://youtu.be/vp6JafuCDHk?t=37s
+- Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 
 **Moves we tried & want a private:**
 - (Walter?) Some Brazilians: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
