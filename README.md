@@ -59,5 +59,6 @@ Keeping track of zouk moves
 - Bruno/Fae: turns with change of place http://youtu.be/OuwQNoIE_jo?t=141s
 
 **Moves we tried & want a private:**
-- (Walter?) Some Brazilians: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
+- Walter?: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
+- Shani?: washing machine footwork http://youtu.be/ITRCYkFMqfk?t=116s
 - Paulo/Luisa: connected/side counterbalance http://youtu.be/meXPCMi-p3g?t=42s
