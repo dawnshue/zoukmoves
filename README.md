@@ -60,4 +60,5 @@ Keeping track of zouk moves
 - William/Paloma: back cambre exit to rubberband https://youtu.be/vp6JafuCDHk?t=37s
 
 **Moves we tried & want a private:**
-- Some Brazilians: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
+- (Walter?) Some Brazilians: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
+- Paulo/Luisa: connected/side counterbalance http://youtu.be/meXPCMi-p3g?t=42s
