@@ -31,7 +31,7 @@ Keeping track of zouk moves
 - Charles Espinoza: fancy arm move https://www.youtube.com/watch?v=lDTvPXdr7rE Freddy/Andressa ex. https://youtu.be/xc9OnB1mZAA?t=84
 - Charles Espinoza: outside turn to tilt to head movement in shadow position to snakes https://youtu.be/stq7MNX-ppc
 - Alanna & Rui: both ppl spiral turn into cambre https://www.youtube.com/watch?v=GN1H1-IHGzs
-- Evelyn/Xandy: switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
+- Evelyn/Xandy: washing machine - switching between closed and open spins http://youtu.be/ITRCYkFMqfk?t=116s
 - Anderson/Brenda: kamacho entrance into head movement https://youtu.be/VHSdlk-aV7g?t=96
 - William/Paloma: forward to backwards cambre to music https://youtu.be/vp6JafuCDHk?t=47s
 - Freddy/Andressa: side dip example https://youtu.be/xc9OnB1mZAA?t=28
