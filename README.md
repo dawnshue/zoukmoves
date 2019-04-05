@@ -50,7 +50,7 @@ Keeping track of zouk moves
 - Freddy/Andressa: left side counterbalance
 - Bruno/Raiza: walks, chest isolations
 - Side chicote into roast chicken into same side chicote
-- https://www.youtube.com/watch?v=Y74FuIxGkz0&t=48
+- Aline: lamba-style roast chicken into side chicote into sitting with isolations https://www.youtube.com/watch?v=Y74FuIxGkz0&t=48
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
