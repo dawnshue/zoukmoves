@@ -11,3 +11,8 @@ Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK
 **Petra:**
 - Basics: keep weight/energy forward, not falling backwards
 - Roast chicken: don't necessarily need to have your head follow your hand
+
+**Gui:**
+- Musicality
+- Connection
+- Head Movement
