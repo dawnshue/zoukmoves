@@ -1,5 +1,6 @@
 # zoukmoves
 Keeping track of zouk moves
+(p) Learn in a private
 
 **New moves for future practices:** 
 - Bruno/Fae: rubberband into arms & walk with COUNTERBALANCE http://youtu.be/OuwQNoIE_jo?t=87s
@@ -57,3 +58,4 @@ Keeping track of zouk moves
 - Paulo/Luisa: arm around neck cuddle position swing https://youtu.be/meXPCMi-p3g?t=89
 - Evelyn/Xandy: cross hand hold, head movement into backward cambre into sitting elastico http://youtu.be/ITRCYkFMqfk?t=267s
 - William/Paloma: back cambre exit to rubberband https://youtu.be/vp6JafuCDHk?t=37s
+(p) - Some Brazilians: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
