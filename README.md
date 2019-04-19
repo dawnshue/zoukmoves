@@ -60,8 +60,9 @@ Keeping track of zouk moves
 
 **Moves we tried & want a private:**
 - ?: circular turns with head movement https://www.youtube.com/watch?v=3bRy8A0Ujes
-- Shani Meyer/Christina Montoya?: washing machine footwork http://youtu.be/ITRCYkFMqfk?t=116s
+- Christina Montoya?: washing machine/hurricane footwork/styling http://youtu.be/ITRCYkFMqfk?t=116s
 - Shani?: chest & hip isolations? (from Bruno workshop)
 - Shani?: following snakes/sways when back-to-back
 - Paulo/Luisa: connected/side counterbalance http://youtu.be/meXPCMi-p3g?t=42s
 - Bruno Galhardo?: leading styling (in place or in pivot spins for example)
+- Walter/Hannah: tilted turns into side tilt technical footwork
