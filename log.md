@@ -1,4 +1,5 @@
-Zouk Timeline Playlist: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK61TH7vpna3VoGGHD
+Zouk Resource Timeline: https://www.youtube.com/playlist?list=PLjMUh88wGsz7GchGK61TH7vpna3VoGGHD
+Zouk Personal: https://www.youtube.com/playlist?list=PLjMUh88wGsz4uhWG2jt4V-VCnNE3nOC7J
 
 **Hisako:**
 - Head movement: engage your core
