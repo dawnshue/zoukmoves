@@ -49,6 +49,7 @@ Keeping track of zouk moves
 - Side chicote into roast chicken into same side chicote
 - Aline: lamba-style roast chicken into side chicote into sitting with isolations https://www.youtube.com/watch?v=Y74FuIxGkz0&t=48
 - Alex/Mathilde: side chicote > roast chicken > cambre https://youtu.be/dKopE_lMXWU?t=147
+- Walter Fernandes: interrupted bonus into cat/backwards cambre https://youtu.be/kW6Wrh9ivQc?t=125
 
 **Moves we tried & nah (lol):**
 - William/Paloma: tilted turn into side lean & backwards chambre http://youtu.be/vp6JafuCDHk?t=105s
