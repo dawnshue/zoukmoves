@@ -31,3 +31,8 @@ Zouk Personal: https://www.youtube.com/playlist?list=PLjMUh88wGsz4uhWG2jt4V-VCnN
 - Yo-yo: when wrapping into cuddle position, don't have space between arm and body
 - Yo-yo: when released from yo-yo, free arm sooner so it doesn't collide with lead
 
+**Walter Fernandes:**
+- Keep core engaged, rib-cage closed.
+- Step with foot turned out for lateral.
+- When swiveling, close thighs together (engaged).
+- When engaged in head movement, head should be a bit more back and not tilted on the side immediately.
