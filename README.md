@@ -12,6 +12,9 @@ Keeping track of zouk moves
 - Arm pretzels: https://www.youtube.com/watch?v=1JSgi054JBk
 - Lucas Oliveira: fancy ass footwork https://www.facebook.com/uaizouk/videos/2273092869585894/?v=2273092869585894
 
+**Review**
+- Gui & Julissa Intro to Zouk: https://www.youtube.com/watch?v=HbzDkQGCOh8&ab_channel=kaguilar86
+
 **Move checklist:**
 - Brenda/Lucas: arms http://youtu.be/DMDmlhb7Bz0?t=34s
 - Brenda/Lucas: arms with exit variation http://youtu.be/DMDmlhb7Bz0?t=86s
