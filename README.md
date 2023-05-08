@@ -20,7 +20,6 @@ Keeping track of zouk moves
 - Brenda/Lucas: arms with exit variation http://youtu.be/DMDmlhb7Bz0?t=86s
 - Brenda/Lucas: backwards cambre http://youtu.be/DMDmlhb7Bz0?t=51s
 - Paulo/Luisa: arms around neck into cuddle position http://youtu.be/meXPCMi-p3g?t=25s
-- Ivoveira: shadow walk, pivot spin into arms http://youtu.be/qVMnU0vV52I?t=395s
 - Kamacho/Oksana: rubber hand behind the head to double spin http://youtu.be/sTIngSWDk80?t=35s
 - Kamacho/Oksana: double hand boomerang http://youtu.be/sTIngSWDk80?t=51s
 - William/Paloma: Cross lead/Change-of-direction in open frame https://youtu.be/vp6JafuCDHk?t=25s
